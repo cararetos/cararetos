@@ -8,4 +8,4 @@
 - 💬 Ask me about: Anything
 - 📫 How to reach me: You CAN'T
 - 😄 Pronouns: Omg, this shit here too? Who cares?
-- ⚡ Fun fact: The colour of an orange is orange
+- ⚡ Fun fact: The colour of an orange is orange... think about it
